@@ -109,16 +109,21 @@ No, it is forbidden for a Noahide to keep Shabbat (the sabbath) as that is the i
 
 A Noahide cannot create for him/herself a "holy day" of religious observance similar to Shabbat, since this would be considered adding a new commandment, which is prohibited.
 
-### What is the relationship between Judaism/Noahidism and Zionism?
+## What is the relationship between Judaism/Noahidism and Zionism?
 
-### What are recommended English translations of the Torah and/or the Tanakh?
+## What are recommended English translations of the Torah and/or the Tanakh?
 - [Judaica Press](https://judaicapress.com/collections/rosenberg-rabbi-a-j?usf_sort=title)
 - [Art Scroll](https://www.artscroll.com/Categories/BBL.html)
 
-### Can a Noahide participate in holiday traditions?
+## Can a Noahide participate in holiday traditions?
 Yes, he can participate if he/she has been invited by a Jewish family.
 However he/she is forbidden from observing the holy days that are reserved for Jews (such as Passover or Sukkot) as that would be creating a new religion for him/herself.
 
-### Can a Noahide convert to Judaism, and if they can should I start as a Noahide if I'm interested in converting to Judaism?
+## Can a Noahide convert to Judaism, and if they can should I start as a Noahide if I'm interested in converting to Judaism?
+
+## What are some Noahide resources on the web?
+- [Unite to Study](https://www.unitetostudy.org)
+- [Academy of Shem](https://education.noahidenations.com/course/view.php?id=88)
+- [Noahide Laws and Foundational Principles](https://ypsnetiv.org/courses/the-noahide-laws-and-foundational-principles)
 
 
