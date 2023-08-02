@@ -85,6 +85,7 @@ Unitarian Christians are not considered idolaters since they recognize that ther
    - [Noahide Nations](https://noahidenations.com)
 
 ## Are Noahides allowed to pray in a synagogue?
+This would be up to the Rabbi of the synagogue.
 
 ## Do Noahides have their own prayers and traditions?
 Yes, they can be found in the following books:
