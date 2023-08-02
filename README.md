@@ -123,6 +123,7 @@ However he/she is forbidden from observing the holy days that are reserved for J
 
 ## What are some Noahide resources on the web?
 - [Chabad.org](https://www.chabad.org)
+- [Ask Noah FAQ](https://asknoah.org/faqs)
 - [Unite to Study](https://www.unitetostudy.org)
 - [Academy of Shem](https://education.noahidenations.com/course/view.php?id=88)
 - [Noahide Laws and Foundational Principles](https://ypsnetiv.org/courses/the-noahide-laws-and-foundational-principles)
