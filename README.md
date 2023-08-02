@@ -116,7 +116,9 @@ A Noahide cannot create for him/herself a "holy day" of religious observance sim
 - [Art Scroll](https://www.artscroll.com/Categories/BBL.html)
 
 ### Can a Noahide participate in holiday traditions?
-No.
+Yes, he can participate if he/she has been invited by a Jewish family.
+However he/she is forbidden from observing the holy days that are reserved for Jews (such as Passover or Sukkot) as that would be creating a new religion for him/herself.
 
 ### Can a Noahide convert to Judaism, and if they can should I start as a Noahide if I'm interested in converting to Judaism?
+
 
