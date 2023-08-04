@@ -95,6 +95,8 @@ Yes, they can be found in the following books:
 
 Noahides are also allowed to pray from the book of Psalms (Tehilim).
 
+Please check out [this thread](http://asknoah.org/forum/showthread.php?tid=25) on AskNoah.org for more information.
+
 ## What should a Noahide read/study aside from the Torah?
 - [The Divine Code](https://asknoah.org/books/the-divine-code) by Rabbi Moshe Weiner
 
