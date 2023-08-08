@@ -41,6 +41,8 @@ It would be a mistake to assume that since there are only 7 commandments, Noahid
 
 For example, **Not to worship idols** means that you could never step into a Christian church or carry a Christian bible, unless under life-threatening circumstances.
 
+Furthermore, there are some logical commandments that both jews and Noahides are obligated to follow. For example, the commandment **Honor thy father and thy mother** is a commandment that would be logical for Noahides to follow.
+
 Because Noahidism is for the non-jew and the majority of texts in Judaism are for jews, this means that there will be many texts that are either forbidden or inappropriate to non-jews. This puts severe limitations on what Noahides can practice and read.
 
 For some, conversion to Judaism may not be an option due to practical considerations, or may not be desirable to those who want to conserve their national identity. Therefore if one's mother is not jewish, Noahidism is the best option.
