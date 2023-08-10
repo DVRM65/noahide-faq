@@ -36,6 +36,21 @@ Judaism holds the rabbi as the authority on Jewish law, and the synagogue is the
 
 Judaism and Noahidism are not separate faiths, but rather are both the same faith, with Judaism being for jews and Noahidism for non-jews.
 
+Both jews and Noahides believe in the 13 principles of faith by Maimonides (the Rambam):
+1. God is the cause of existence
+2. God is one
+3. God is incorporeal
+4. God is eternal
+5. We serve God exclusively
+6. God communicates through prophecy
+7. Moses was the ultimate prophet
+8. The Torah is of divine origin
+9. The Torah is immutable
+10. God is omniscient
+11. God rewards and punishes
+12. We believe in and await the messiah
+13. The dead will be resurrected
+
 ## How do I know if Noahidism is right for me?
 It would be a mistake to assume that since there are only 7 commandments, Noahidism is an "easier" faith to practice than Judaism. When in fact there are 7 categories of commandments within the 7 commandments.
 
