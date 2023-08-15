@@ -134,7 +134,9 @@ No, it is forbidden for a Noahide to keep Shabbat (the sabbath) as that is the i
 
 A Noahide cannot create for him/herself a "holy day" of religious observance similar to Shabbat, since this would be considered adding a new commandment, which is prohibited.
 
-## What is the relationship between Judaism/Noahidism and Zionism?
+## What is the relationship between Judaism/Noahidism and Religious Zionism?
+
+## Are believers of Noahidism subordinate to Jews? Are Jews racially superior people with an innate ability to access divinity?
 
 ## What are recommended English translations of the Torah and/or the Tanakh?
 - [Judaica Press](https://judaicapress.com/collections/rosenberg-rabbi-a-j?usf_sort=title)
