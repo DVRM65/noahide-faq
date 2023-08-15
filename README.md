@@ -66,6 +66,11 @@ Finally, Noahidism is relatively new unexplored territory. There is a lot of mat
 
 ## What happens if I decide not to be a Noahide?
 
+If a person actively denies the existence of G-d, or any of the fundamental principles of faith in G-d, then this person is a *deviant believer*.
+
+A deviant believer will not receive a part in the World to Come, but instead to the lowest world where the wicked reside.
+
+See **Chapter 1: Awareness of God** in the Divine Code for more details.
 
 ## Can a Noahide believe in Jesus?
 No. Believing in Jesus would constitute idolatry and would violate one of Noahide laws.
