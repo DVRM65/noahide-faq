@@ -101,6 +101,10 @@ Unitarian Christians are not considered idolaters since they recognize that ther
 
 ## How many Noahides are there in the world?
 
+The [Wikipedia article on
+Noahidism](https://en.wikipedia.org/wiki/Noahidism) claims that
+approximately 20 000 exist in 2018--however this number is probably difficult to confirm.
+
 ## Are there Noahide Organizations?
    - [Noahide World Center](https://noahideworldcenter.org)
    - [Ask Noah International](https://asknoah.org)
