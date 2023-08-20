@@ -137,6 +137,10 @@ Yes, but he/she can only study the parts that are relevant to the Noahide laws a
 ## Does a Noahide have to eat kosher?
 No, but he/she must not eat flesh torn from a living animal.
 
+If he/she chooses to eat kosher for practical reasons (such as for
+health), it is acceptable as long as it is not for religious reasons
+nor with the expectation of any benefit.
+
 ## Can a Noadhide keep Shabbat?
 No, it is forbidden for a Noahide to keep Shabbat (the sabbath) as that is the inheritance **only** to the jews given by G-d.
 
