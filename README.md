@@ -91,8 +91,14 @@ Deuteronomy 4:35
 Deuteronomy 4:39
 > And you shall know this day and consider it in your heart, that the Lord He is God in heaven above, and upon the earth below; there is none else.
 
+Contrast these verses that are clear, explicit and unambiguous with
+the usual verses in the New Testament that are used to support the
+doctrine of the Trinity, including the [Johannine
+Comma](https://en.wikipedia.org/wiki/Johannine_Comma).
 
 The majority of Christendom subscribes to the doctrine of the Trinity.
+
+## Aren't you confusing Trinitarianism with Tritheism?
 
 ## What about non-trinitarian (unitarian) Christians?
 Unitarian Christians are not considered idolaters since they recognize that there is one G-d. However their claims of Jesus being the messiah are heretical.
