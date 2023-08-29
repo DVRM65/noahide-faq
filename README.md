@@ -2,6 +2,8 @@
 
 This file documents frequently asked questions about Noahidism from the *[Judaism and Noahidism Discord server](https://discord.gg/VndhjgXM)*.
 
+In general, the answers to the questions below are derived from Rabbi Moshe Weiner's Divine Code book. As such, if you have any follow up questions or questions not listed here, please consult the book.
+
 ## What is a Noahide
 A Noahide is a non-jew (gentile) who observes the 7 Noahide laws of the Torah and is a believer in the God of Abraham, the God of Isaac, and the God of Jacob.
 
@@ -62,7 +64,7 @@ Because Noahidism is for the non-jew and the majority of texts in Judaism are fo
 
 For some, conversion to Judaism may not be an option due to practical considerations, or may not be desirable to those who want to conserve their national identity. Therefore if one's mother is not jewish, Noahidism is the best option.
 
-Finally, Noahidism is relatively new unexplored territory. There is a lot of material out there on the web under the banner of "Noahidism" and it will be difficult to sift through what is acceptable in the eyes of HaShem, and what is not.
+Finally, Noahidism is not an organized religion and has no central authority. Different groups will have different opinions on issues such as whether Noahides are allowed to study Torah or observe the Sabbath. This unfortunately makes it difficult to discern what is acceptable and what is not.
 
 ## What happens if I decide not to be a Noahide?
 
@@ -99,6 +101,10 @@ Comma](https://en.wikipedia.org/wiki/Johannine_Comma).
 The majority of Christendom subscribes to the doctrine of the Trinity.
 
 ## Aren't you confusing Trinitarianism with Tritheism?
+
+
+
+
 
 ## What about non-trinitarian (unitarian) Christians?
 Unitarian Christians are not considered idolaters since they recognize that there is one G-d. However their claims of Jesus being the messiah are heretical.
