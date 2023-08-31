@@ -54,17 +54,18 @@ Both jews and Noahides believe in the 13 principles of faith by Maimonides (the 
 13. The dead will be resurrected
 
 ## How do I know if Noahidism is right for me?
-It would be a mistake to assume that since there are only 7 commandments, Noahidism is an "easier" faith to practice than Judaism. When in fact there are 7 categories of commandments within the 7 commandments.
+It would be a mistake to assume that since there are merely 7 commandments, Noahidism is an "easier" of simpler faith to practice than Judaism. When in fact there are 7 categories of commandments within the 7 commandments.
 
 For example, **Not to worship idols** means that you could never step into a Christian church or carry a Christian bible, unless under life-threatening circumstances.
 
-Furthermore, there are some logical commandments that both jews and Noahides are obligated to follow. For example, the commandment **Honor thy father and thy mother** is a commandment that would be logical for Noahides to follow.
+Furthermore, there are some commandments reserved for jews that are logical for Noahides to follow. For example, the commandment **Honor thy father and thy mother** is a commandment that would be logical for Noahides to follow.
 
 Because Noahidism is for the non-jew and the majority of texts in Judaism are for jews, this means that there will be many texts that are either forbidden or inappropriate to non-jews. This puts severe limitations on what Noahides can practice and read.
 
 For some, conversion to Judaism may not be an option due to practical considerations (absence of a synagogue/Rabbi), or may not be desirable to those who want to conserve their national identity. Therefore if one's mother is not jewish, Noahidism might be the best option in such cases.
 
 Finally, Noahidism is not an organized religion and has no central authority. Different groups will have different opinions on issues such as whether Noahides are allowed to study Torah or observe the Sabbath. This unfortunately makes it difficult to discern what is acceptable and what is not.
+In such cases, it is advisable to seek the guidance of a Rabbi.
 
 ## What happens if I decide not to be a Noahide?
 
