@@ -73,6 +73,8 @@ If a person actively denies the existence of G-d, or any of the fundamental prin
 
 A deviant believer will not receive a part in the World to Come, but instead to the lowest world where the wicked reside.
 
+## What happens when a Noahide breaks any of the commandments?
+
 ## Can a Noahide believe in Jesus?
 No. Believing in Jesus would constitute idolatry and would violate one of Noahide laws.
 
@@ -102,10 +104,6 @@ Comma](https://en.wikipedia.org/wiki/Johannine_Comma).
 The majority of Christendom subscribes to the doctrine of the Trinity.
 
 ## Aren't you confusing Trinitarianism with Tritheism?
-
-
-
-
 
 ## What about non-trinitarian (unitarian) Christians?
 Unitarian Christians are not considered idolaters since they recognize that there is one G-d. However their claims of Jesus being the messiah are heretical.
