@@ -4,6 +4,8 @@ This README documents frequently asked questions about Noahidism from the *[Juda
 
 In general, the answers to the questions below are derived from Rabbi Moshe Weiner's [Divine Code book](https://asknoah.org/books/the-divine-code). As such, if you have any follow up questions or questions not listed here, please consult the book.
 
+Note that this is a work in progress.
+
 ## What is a Noahide
 A Noahide is a non-jew (gentile) who observes the 7 Noahide laws of the Torah and is a believer in the God of Abraham, Isaac and Jacob.
 
@@ -78,10 +80,12 @@ A deviant believer will not receive a part in the World to Come, but instead to 
 ## What happens when a Noahide breaks any of the commandments?
 
 ## Can a Noahide believe in Jesus?
-No. Believing in Jesus would constitute idolatry and would violate one of Noahide laws.
+No. Believing in Jesus would constitute idolatry and would violate one of the Noahide laws.
 
 ## Why is worshipping Jesus considered idolatry?
 The doctrine of the Trinity claims that god is 3 persons and that one of those persons is a man. This is the worst kind of idolatry in that it involves worshipping something *other* than G-d, and worshipping a creation.
+
+Here are some verses that reinforce G-d's unity:
 
 Deuteronomy 4:16
 > Lest you become corrupt and make for yourselves a graven image, the representation of any form, the likeness of male or female,
@@ -117,6 +121,7 @@ Noahidism](https://en.wikipedia.org/wiki/Noahidism) claims that
 approximately 20 000 exist in 2018--however this number is probably difficult to confirm.
 
 ## Are there Noahide Organizations?
+Yes, here are a few:
    - [Noahide World Center](https://noahideworldcenter.org)
    - [Ask Noah International](https://asknoah.org)
    - [Noahide Nations](https://noahidenations.com)
@@ -173,5 +178,3 @@ However he/she is forbidden from observing the holy days that are reserved for J
 - [Unite to Study](https://www.unitetostudy.org)
 - [Academy of Shem](https://education.noahidenations.com/course/view.php?id=88)
 - [Noahide Laws and Foundational Principles](https://ypsnetiv.org/courses/the-noahide-laws-and-foundational-principles)
-
-
