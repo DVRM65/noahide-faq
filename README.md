@@ -1,11 +1,11 @@
 # Noahidism Frequently Asked Questions
 
-This file documents frequently asked questions about Noahidism from the *[Judaism and Noahidism Discord server](https://discord.gg/VndhjgXM)*.
+This README documents frequently asked questions about Noahidism from the *[Judaism and Noahidism Discord server](https://discord.gg/VndhjgXM)*.
 
 In general, the answers to the questions below are derived from Rabbi Moshe Weiner's [Divine Code book](https://asknoah.org/books/the-divine-code). As such, if you have any follow up questions or questions not listed here, please consult the book.
 
 ## What is a Noahide
-A Noahide is a non-jew (gentile) who observes the 7 Noahide laws of the Torah and is a believer in the God of Abraham, the God of Isaac, and the God of Jacob.
+A Noahide is a non-jew (gentile) who observes the 7 Noahide laws of the Torah and is a believer in the God of Abraham, Isaac and Jacob.
 
 The 7 laws are:
 1. ***Avodah Zarah*** Not to worship idols.
@@ -18,6 +18,8 @@ The 7 laws are:
 
 Other names for Noahides are B'Nei Noach (Children of Noah), Righteous Gentile or Noachide.
 
+There are also a few contexts where the term Noahide is used to referred to any non-jew, whether Torah-observant or not.
+However, this is not the term that is used here and its usage should be discouraged.
 
 ## Where in the Torah are the Noahide Laws found?
 
