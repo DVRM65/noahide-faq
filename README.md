@@ -85,7 +85,7 @@ No. Believing in Jesus would constitute idolatry and would violate one of the No
 ## Why is worshipping Jesus considered idolatry?
 The doctrine of the Trinity claims that god is 3 persons and that one of those persons is a man. This is the worst kind of idolatry in that it involves worshipping something *other* than G-d, and worshipping a creation.
 
-Here are some verses that reinforce G-d's unity:
+Here are some verses that show G-d's unity:
 
 Deuteronomy 4:16
 > Lest you become corrupt and make for yourselves a graven image, the representation of any form, the likeness of male or female,
