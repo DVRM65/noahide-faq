@@ -62,20 +62,28 @@ It would be a mistake to assume that since there are merely 7 commandments, Noah
 
 For example, **Not to worship idols** means that you could never step into a Christian church or carry a Christian bible, unless under life-threatening circumstances.
 
-Furthermore, there are some commandments reserved for jews that are logical for Noahides to follow. For example, the commandment **Honor thy father and thy mother** is a commandment that would be logical for Noahides to follow.
+Furthermore, there are some commandments reserved for jews that are logical for Noahides to follow. For example, the commandment to **Honor thy father and thy mother** is a commandment that would be logical for Noahides to follow.
 
 Because Noahidism is for the non-jew and the majority of texts in Judaism are for jews, this means that there will be many texts that are either forbidden or inappropriate to non-jews. This puts severe limitations on what Noahides can practice and read.
 
 For some, conversion to Judaism may not be an option due to practical considerations (absence of a synagogue/Rabbi), or may not be desirable to those who want to conserve their national identity. Therefore if one's mother is not jewish, Noahidism might be the best option in such cases.
 
 Finally, Noahidism is not an organized religion and has no central authority. Different groups will have different opinions on issues such as whether Noahides are allowed to study Torah or observe the Sabbath. This unfortunately makes it difficult to discern what is acceptable and what is not.
-In such cases, it is advisable to seek the guidance of a Rabbi.
+In such cases, it is advisable to seek the guidance of an Orthodox Rabbi.
+
+### See also (on Youtube):
+- [The Plight of the Noahide](https://www.youtube.com/watch?v=CBfLfRQ6rXw) by Rabbi Rafi Mollot.
+- [Noahide Challenges](https://www.youtube.com/watch?v=5O1ve4Hs4Po&t=2364s) by Rabbi Michael Skobac
 
 ## What happens if I decide not to be a Noahide?
 
-If a person actively denies the existence of G-d, or any of the fundamental principles of faith in G-d, then this person is a *deviant believer*.
+If a non-jew actively denies the existence of G-d, or any of the fundamental principles of faith in G-d, then this person is considered to be a *deviant believer*.
 
 A deviant believer will not receive a part in the World to Come, but instead to the lowest world where the wicked reside.
+
+## What is the World to Come (Olam HaBa)?
+
+## What is Gehinnom/Gehenna?
 
 ## What happens when a Noahide breaks any of the commandments?
 
@@ -157,6 +165,8 @@ nor with the expectation of any benefit.
 No, it is forbidden for a Noahide to keep Shabbat (the sabbath) as that is the inheritance **only** to the jews given by G-d.
 
 A Noahide cannot create for him/herself a "holy day" of religious observance similar to Shabbat, since this would be considered adding a new commandment, which is prohibited.
+
+## How can I Noahide do Teshuvah?
 
 ## What is the relationship between Judaism/Noahidism and Religious Zionism?
 
