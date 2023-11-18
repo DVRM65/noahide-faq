@@ -122,6 +122,8 @@ The majority of Christendom subscribes to the doctrine of the Trinity.
 ## What about non-trinitarian (unitarian) Christians?
 Unitarian Christians are not considered idolaters since they recognize that there is one G-d. However their claims of Jesus being the messiah are heretical.
 
+## Can Muslims be Noahides also?
+
 ## How many Noahides are there in the world?
 
 The [Wikipedia article on
@@ -154,6 +156,10 @@ Please check out [this thread](http://asknoah.org/forum/showthread.php?tid=25) o
 ## Can a Noahide study Talmud?
 Yes, but he/she can only study the parts that are relevant to the Noahide laws and cannot study the Talmud in an in-depth manner.
 
+### What are the relevant parts of the Talmud to Noahides?
+
+## Can a Noahide study Kabbalah?
+
 ## Does a Noahide have to eat kosher?
 No, but he/she must not eat flesh torn from a living animal.
 
@@ -166,7 +172,7 @@ No, it is forbidden for a Noahide to keep Shabbat (the sabbath) as that is the i
 
 A Noahide cannot create for him/herself a "holy day" of religious observance similar to Shabbat, since this would be considered adding a new commandment, which is prohibited.
 
-## How can I Noahide do Teshuvah?
+## How can a Noahide do Teshuvah?
 
 ## What is the relationship between Judaism/Noahidism and Religious Zionism?
 
